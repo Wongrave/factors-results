@@ -1,5 +1,5 @@
 # factors-results
 Leo Nazista ?
 Hail Hydra
-ghfdshdgfh
 Meus caros companheiros
+Russian is for killers blast Henry
