@@ -1,21 +1,36 @@
 # factors-results
-Leo Nazista ?
-Hail Hydra
-ghfdshdgfh
+Deutschland, Deutschland über alles
+Über alles in der Welt
+Wenn es stets zu Schutz und Trutze
+Brüderlich zusammenhält
+Von der Maas bis an die Memel
+Von der Etsch bis an den Belt
 
-Ou tu e communista ?
-sem ofensa claro.
+Deutschland, Deutschland über alles
+Über alles in der Welt
+Deutschland, Deutschland über alles
+Über alles in der Welt
 
+Deutsche Frauen, deutsche Treue
+Deutscher Wein und deutscher Sang
+Sollen in der Welt behalten
+Ihren alten schönen Klang
+Uns zu edler Tat begeistern
+Unser ganzes Leben lang
 
-Rossiya – svyashchennaya nasha derzhava,
-Rossiya – lyubimaya nasha strana.
-Moguchaya volya, velikaya slava –
-Tvoio dostoyanye na vse vremena!
-Slav'sya, Otechestvo nashe svobodnoye,
-Bratskih narodov soyuz vekovoi,
-Predkami dannaya mudrost' narodnaya!
-Slav'sya, strana! My gordimsya toboi!
-Ot yuzhnyh morei do polyarnogo kraya
-Raskinulis' nashi lesa i polya.
-Odna ty na svete! Odna ty takaya –
-Khranimaya Bogom…
+Deutsche Frauen, deutsche Treue
+Deutscher Wein und deutscher Sang
+Deutsche Frauen, deutsche Treue
+Deutscher Wein und deutscher Sang
+
+Einigkeit und Recht und Freiheit
+Für das deutsche Vaterland!
+Danach laßt uns alle streben
+Brüderlich mit Herz und Hand!
+Einigkeit und Recht und Freiheit
+Sind des Glückes Unterpfand
+
+Blüh' im Glanze dieses Glückes
+Blühe, deutsches Vaterland
+Blüh' im Glanze dieses Glückes
+Blühe, deutsches Vaterland
